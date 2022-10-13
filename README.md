@@ -8,4 +8,4 @@
   * Informática
   * Ir al gimnasio
  
-![Alt Text](https://upload.wikimedia.org/wikipedia/commons/9/95/Abra_del_Pas.jpg)
+![Alt Text](https://spartasportcenter.com/wp-content/uploads/2022/05/gimnasios-sparta-sport-center.jpg)
